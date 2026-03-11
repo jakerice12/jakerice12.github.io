@@ -1,1 +1,0 @@
-# jakerice12.github.io
